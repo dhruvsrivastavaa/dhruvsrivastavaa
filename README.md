@@ -7,7 +7,7 @@ Email Me 👉 ✉️ official.sridhruv@gmail.com For Collaboration/Project or An
   
   
 # 💫 About Me:
-🔭 I’m currently preparing for comptia security+ certification.<br>🌱 I’m currently learning cybersecurity,pentesting,networking.<br>💬 Ask me about cybersecurity <br
+🔭 I’m currently preparing for comptia security+ certification.<br>🌱 I’m currently learning cybersecurity,pentesting,networking.<br>💬 Ask me about cybersecurity <br>
 
 
 ## 🌐 Socials:
